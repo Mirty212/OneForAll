@@ -1,4 +1,4 @@
 # Leak Du Oneforall 😕
-`Vu que le maroc à perdu je décide de leak le oneforall 😄`
+`Bonjour, aujourd'hui j'ai décidé de leak le bot OneForAll ( Ancienne Version )`
 
-`⚠️ Leaked by: Mirty, Yanis 😄`
+`⚠️ Leaked by: Mirty !`
